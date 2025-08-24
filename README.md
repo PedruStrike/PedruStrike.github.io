@@ -1,1 +1,3 @@
-# PedruStrike.github.io
+You've been trolled! 
+Don't enter random links on the internet, there are malicious people out there... 
+Take care.
